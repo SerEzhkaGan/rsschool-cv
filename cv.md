@@ -7,7 +7,7 @@
 
 - **Phone:** +79024488469<br>
 - **E-mail:** evgeost5@gmail.com<br>
-- **Telegram:** [@evgesha_ost](t.me/evgesha_ost)<br>
+- **Telegram:** [@evgesha_ost](https://t.me/evgesha_ost)<br>
 - **Github:** [SerEzhkaGan](https://github.com/SerEzhkaGan)<br>
 
 
